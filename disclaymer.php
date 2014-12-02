@@ -1,0 +1,2 @@
+<br />
+Alle rechten voorbehouden
